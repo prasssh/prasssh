@@ -1,4 +1,4 @@
-### Hi 👋, Prashuma here
+### Hi 👋
 <br>
 <p align="left">
 </p>
